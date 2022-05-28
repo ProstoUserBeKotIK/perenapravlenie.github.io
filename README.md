@@ -1,2 +1,0 @@
-# perenapravlenie.github.io
-rickroll
